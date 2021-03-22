@@ -1,2 +1,0 @@
-# Nigesha
-This is Nigesha.
